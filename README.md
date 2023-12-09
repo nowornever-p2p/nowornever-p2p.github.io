@@ -1,3 +1,0 @@
-Try P2p CDN to save  money ...
-
-
